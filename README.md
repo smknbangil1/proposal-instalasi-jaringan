@@ -10,7 +10,7 @@ Telp: +62 822-3348-3221
 
 #### **I. Pendahuluan**
 
-Dengan perkembangan teknologi yang semakin pesat, kebutuhan akan konektivitas internet yang andal, stabil, dan cepat menjadi hal yang sangat penting, terutama di lingkungan pendidikan. Sekolah memerlukan jaringan yang mendukung akses internet untuk proses belajar mengajar, administrasi, serta interaksi siswa dengan teknologi. CV Royal Technology menawarkan solusi pemasangan jaringan LAN (Local Area Network) dan Fiber Optik untuk memenuhi kebutuhan tersebut.
+Dengan perkembangan teknologi yang semakin pesat, kebutuhan akan konektivitas internet yang andal, stabil, dan cepat menjadi hal yang sangat penting, terutama di lingkungan pendidikan. Sekolah memerlukan jaringan yang mendukung akses internet untuk proses belajar mengajar, administrasi, serta interaksi siswa dengan teknologi. Kami dari CV Royal Technology bermaksud menawarkan solusi pemasangan jaringan LAN (Local Area Network) dan Fiber Optik untuk memenuhi kebutuhan tersebut di organisasi/sekolah yang Bapak pimpin.
 
 #### **II. Profil Perusahaan**
 

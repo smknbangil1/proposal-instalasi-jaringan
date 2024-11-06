@@ -17,7 +17,7 @@ Dengan perkembangan teknologi yang semakin pesat, kebutuhan akan konektivitas in
 **Nama Perusahaan:** CV Royal Technology  
 **Alamat:** Jl. Sili No. 5, Bangil, Kab. Pasuruan, Jawa Timur, Indonesia  
 **Contact:** +62 822-3348-3221  
-**Website:** (Jika Ada)
+**Website:** https://www.facebook.com/botdrex 
 
 CV Royal Technology adalah perusahaan yang bergerak di bidang teknologi informasi dan jaringan. Kami menyediakan layanan pemasangan dan pemeliharaan jaringan berbasis LAN dan Fiber Optik dengan mengedepankan kualitas dan kehandalan. Tim kami terdiri dari tenaga ahli yang berpengalaman dalam merancang dan mengimplementasikan jaringan untuk kebutuhan sekolah, instansi pemerintah, maupun perusahaan swasta.
 
